@@ -25,3 +25,11 @@ Matt, Jackson, & Ngan
 
 
 ## Raison d'etre
+
+## Vacation Experiences
+
+## Relationships
+
+## Geography
+
+## Relationship Psychology Manifolds
